@@ -1,6 +1,6 @@
 ### Hi there 👋, my name is Sam
 
-#### China Custom plastic injection molding Services company
+#### Marketing Manager China Custom plastic injection molding Services company
 ![China Custom plastic injection molding Services company]
 
 Marketing manager of custom plastic injection molding factory,Custom plastic injection molding company in china, offer affordable plastic injection molding and tooling manufacturing, prototype making, prototype mold making, mass production mold, hot runner mold, 2k injection mold and silicon mold and parts, precision and high quality parts and molds making, ISO9001 certificated. low cost and quick turnout, small batch accept.
