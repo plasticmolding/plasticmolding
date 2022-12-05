@@ -1,5 +1,7 @@
 ### Hi there 👋, my name is Sam
 
+[![Being Mold Professional](https://img.shields.io/badge/-Become%20A%20VS%20Code%20SuperHero%20%E2%86%92-gray.svg?colorB=ff652f&style=for-the-badge)](https://moldsat.com)
+
 #### Marketing Manager of China Custom plastic injection molding Services company
 ![China Custom plastic injection molding Services company]
 
